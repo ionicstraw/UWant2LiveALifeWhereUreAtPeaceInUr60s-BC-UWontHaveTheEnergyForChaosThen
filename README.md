@@ -17,3 +17,5 @@ u wont have the energy to handle that when ure older, its going to be incredible
 theres so much more i want to say but i dont want to go there now
 
 ure an arrogant control freak, ppl r going to catch on to that quickly, esp in court, ure not going to get what u want by being that either and ure going to wear yourself out if ure going to be an arrogant control freak throughout this whole thing just fyi
+
+ure going to learn from my dad how he managed his life **so well** so that he's at peace in his 60s. my dad leads by example (he has his sh*t together 100% of the time), is a forgiving person and doesnt highlight someone's faults or embarass ppl in front of other ppl --- its all psychology/emotional intelligence, people managing --- u have to bring this same thing into n o m i a l , u cant be an arrogant control freak there either and im not saying u r all the time, its not a good thing to be all the time bc thats going to wear u out too
