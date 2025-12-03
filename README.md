@@ -15,3 +15,5 @@ im not saying i want that for u, but i know what that's all about.
 u wont have the energy to handle that when ure older, its going to be incredible heartbreak for u, so u figure that out now so things dont turn out that way for u (e.g. dont do/say anything stupid, listen to ur lawyer)
 
 theres so much more i want to say but i dont want to go there now
+
+ure an arrogant control freak, ppl r going to catch on to that quickly, esp in court, ure not going to get what u want by being that either and ure going to wear yourself out if ure going to be an arrogant control freak throughout this whole thing just fyi
