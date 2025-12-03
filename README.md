@@ -23,3 +23,7 @@ ure going to learn from my dad how he managed his life **so well** so that he's 
 do u get what im saying, i dont want u fighting via phone calls/txt messages while ure co-parenting bc ure going to be an **arrogant control freak.** u have to **maintain the peace and get the outcome u want.** that involves emotional intelligence and patience etc. i dont want to be in the middle of this, if u decide to handle things this way, im serious, i dont like fighting.
 
 whats going to make u even more arrogant, have u figured it out? me. "ohh i/we would have handled this situation better than u (u = ure ex-partner)" -> and then there would be fightingn back and forth, so u cant compare partner a with partner b, that's stupid. u have to manage all of this bc i dont want to be in the middle of chaos. u have to manage ur arrogance.
+
+lemme clear it up, i wont make u an arrogant person, but my existence will make u say/do arrogant things to ur ex bc their side is going to throw things at u, so they get what they want, thats just how these things are, then to respond, bc ure hurt, u can say/do arrogant things as a response -> **maintain the peace & get the outcome u want.** that's my rule for this.
+
+its not impossible to get the outcome u want out of this situation HOWEVER if u let it get to u, then u lose yourself, then u wont have peace or time for anything
