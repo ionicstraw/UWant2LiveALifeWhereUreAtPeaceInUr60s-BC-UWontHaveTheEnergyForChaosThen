@@ -27,3 +27,5 @@ whats going to make u even more arrogant, have u figured it out? me. "ohh i/we w
 lemme clear it up, i wont make u an arrogant person, but my existence will make u say/do arrogant things to ur ex bc their side is going to throw things at u, so they get what they want, thats just how these things are, then to respond, bc ure hurt, u can say/do arrogant things as a response -> **maintain the peace & get the outcome u want.** that's my rule for this.
 
 its not impossible to get the outcome u want out of this situation HOWEVER if u let it get to u, then u lose yourself, then u wont have peace or time for anything
+
+fine ill say it. i DO NOT want u to go down the path of putting trackers like airtags in the vehicle of ur ex's car to keep track of them, PEOPLE DO THAT and they get CONSUMED its a waste of time. that happens. theres going to be a lot of emotion, dont go down that path.
