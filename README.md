@@ -28,4 +28,4 @@ lemme clear it up, i wont make u an arrogant person, but my existence will make 
 
 its not impossible to get the outcome u want out of this situation HOWEVER if u let it get to u, then u lose yourself, then u wont have peace or time for anything
 
-fine ill say it. i DO NOT want u to go down the path of putting trackers like airtags in the vehicle of ur ex's car to keep track of them, PEOPLE DO THAT and they get CONSUMED its a waste of time. that happens. theres going to be a lot of emotion, dont go down that path.
+fine ill say it. i DO NOT want u to go down the path of putting trackers like airtags in the vehicle of ur ex's car to keep track of them, PEOPLE DO THAT and they get CONSUMED its a waste of time. that happens. theres going to be a lot of emotion, dont go down that path. u want to win in court, and if u do that even without telling me, thats i l l e g a l and stupid.
